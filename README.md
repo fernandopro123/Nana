@@ -1,4 +1,6 @@
 # Nana
+Edgar Fernando Mena Salinas 
+
 Borren a Takumi y es mi primer respositorio
 me gusta los gatos y los juegos de gatos tambien las gordas de chicharron prensado.
 Tambien jugar el Roblox y el brawl stars.
