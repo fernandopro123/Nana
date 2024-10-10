@@ -10,6 +10,8 @@ Y me estreso mucho en matematicas con el profe Juarez.
 
 Me gustaria Tener una casa grande con jardin grande y muy calida y con muchos gatos.
 
+Me gustaria terminando la unversidad irme a trabajar y vivir en Canadá y sacar mi visa.
+
 Mis hobbies son 
 los videojuegos 
 tejer crochet 
