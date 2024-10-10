@@ -1,4 +1,4 @@
-# Nana
+# Garçonne
 Edgar Fernando Mena Salinas 
 
 Borren a Takumi y es mi primer respositorio
